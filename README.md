@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **mohantahappy12345@gmail.com**
 
-- ⚡ Fact **I think I am LOSER**
+- ⚡ Fact **I mostly listen to audiobooks over music. I love learning!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
